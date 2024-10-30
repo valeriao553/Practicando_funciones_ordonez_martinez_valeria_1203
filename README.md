@@ -56,6 +56,12 @@ practicando funciones
 ![image](https://github.com/user-attachments/assets/d1ef2e76-efeb-4caa-ab47-4f18ae155a46)
 
 # Punto 19 
+![image](https://github.com/user-attachments/assets/4d3720d6-febf-4b98-9743-4520fdeffb03)
+
+# Punto 20
+![image](https://github.com/user-attachments/assets/6358d2c7-c6f0-4d3a-a0a7-e9698744ecab)
+
+
 
 
 
